@@ -12,7 +12,7 @@ What casting choices or filming locations will fit their budget?​
 Your pitch lacks professional polish. 
 
 Our Solution:​
- Our Production Estimator, changes all that by making pitching movies to Netflix executives simple and intuitive for all writers.4
+ Our Production Estimator, changes all that by making pitching movies to Netflix executives simple and intuitive for all writers.
  
 # Link
 https://production-estimator.lovable.app/
